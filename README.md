@@ -1,4 +1,4 @@
-Hello Connections 🚀💥
+Hello 🚀💥
 
 🥳🥳 Exciting News !! I am thrilled to introduce my first project: **Excel Sales and Finance Analytics Project of AtliQ Hardwares** !!
 
